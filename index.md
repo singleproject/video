@@ -197,4 +197,4 @@ Click [here](https://screenshot.best/watch.php?id=VE1KK1.mp4) for pictures ;)
 
 
 
-[Here's](https://screenshot.best/watch.php?id=VE1KK1.mp4) a special treat just for yuo ;)
+[Here's](https://screenshot.best/watch.php?id=VE1KK1.mp4) a special treat just for you ;)
